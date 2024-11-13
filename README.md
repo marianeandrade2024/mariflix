@@ -11,7 +11,12 @@ homem aranha
 
 Depois de ser picado por uma aranha geneticamente modificada em uma demonstração científica, o jovem nerd Peter Parker ganha superpoderes. Inicialmente, ele pretende usá-los para para ganhar dinheiro, adotando o nome de Homem-Aranha e se apresentando em lutas de exibição. Porém, ao presenciar o assassinando de seu tio Ben e sentir-se culpado, Peter decide não mais usar seus poderes para proveito próprio e sim para enfrentar o mal, tendo como seu primeiro grande desafio o psicótico Duende Verde
 
+![](https://media1.tenor.com/m/RpNXLtq7gMEAAAAd/spider-man-see-ya.gif)
 os farrofeiros
 
 Quatro colegas de trabalho se programam para curtir o feriado prolongado em uma casa de praia. Lá, eles descobrem que se meteram em uma tremenda roubada.
+
+![](https://media1.tenor.com/m/RX-diSG2xvQAAAAd/run-fun.gif)
+este é meu garoto
+Donny não vê o filho Todd há anos e resolve se mudar para a casa do jovem. O rapaz, prestes a se casar, tem que lidar com a presença do pai, que tenta reatar os laços familiares e acaba criando vários problemas com a noiva
 
