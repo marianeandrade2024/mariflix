@@ -17,8 +17,30 @@ Depois de ser picado por uma aranha geneticamente modificada em uma demonstraç�
 os farrofeiros
 
 Quatro colegas de trabalho se programam para curtir o feriado prolongado em uma casa de praia. Lá, eles descobrem que se meteram em uma tremenda roubada.
-
 ![](https://media1.tenor.com/m/RX-diSG2xvQAAAAd/run-fun.gif)
+
 este é meu garoto
 Donny não vê o filho Todd há anos e resolve se mudar para a casa do jovem. O rapaz, prestes a se casar, tem que lidar com a presença do pai, que tenta reatar os laços familiares e acaba criando vários problemas com a noiva
+![](https://media1.tenor.com/m/ux-Ve8rBY3oAAAAd/eva-amurri-bikini.gif)
+
+esposa de mentirinha
+Infeliz em sua tentativa de casamento, Danny passa a vivenciar relacionamentos sem compromisso para driblar a carência. Assim, ele toca sua vida como cirurgião plástico bem-sucedido, tendo sua melhor amiga Katherine, mãe solteira de um casal, como fiel escudeira. Quando conhece a jovem Palmer e a paixão toma conta de ambos, ele inventa, para tentar conquistá-la, que é marido de Katherine, pai das crianças e que vai se separar
+![](https://media1.tenor.com/m/Ua8QkZwYhAsAAAAd/adam-sandler-just-go-with-it.gif)
+
+as branquelas
+Dois irmãos agentes do FBI, Marcus e Kevin Copeland, acidentalmente evitam que bandidos sejam presos em uma apreensão de drogas. Como castigo, eles são forçados a escoltar um par de socialites nos Hamptons. Quando as meninas descobrem o plano da agência, elas se recusam a ir. Sem opções, Marcus e Kevin, dois homens negros, decidem fingir que são as irmãs e se transformam em um par de loiras.
+![](https://media1.tenor.com/m/os7DjMK8XlAAAAAd/estradadeemaus-festival-das-cores.gif)
+
+bad boys
+Em Miami, os detetives Mike Lowrey e Marcus Burnett trocam de identidade enquanto investigam assassinatos ligados ao roubo de uma carga de 100 milhões de dólares em heroína, que recentemente confiscaram.
+![](https://media1.tenor.com/m/to05S_KgnLwAAAAd/pointing-you.gif)
+
+godzilla e kong
+Godzilla e o todo-poderoso Kong enfrentam uma ameaça colossal escondida nas profundezas do planeta, desafiando a sua própria existência e a sobrevivência da raça humana
+![](https://media1.tenor.com/m/wyRHrUYspigAAAAd/zilla.gif)
+
+
+
+
+
 
